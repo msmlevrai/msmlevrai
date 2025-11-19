@@ -30,5 +30,5 @@ Robotics & Automation Engineer passionate about mechanical design, embedded syst
   Drones, Robotics Arms, Humanoid Robots, AI and Machine Learning
 
 **Let's Connect:**  
-📫 [LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/mamadou-sory-maiga-0612112ab/)) | 📷 [YouTube]([https://youtube.com/@yourchannel](https://www.youtube.com/@msmhightech)) | 🧠 [TikTok]((https://www.tiktok.com/@msmtech8))
+📫 [LinkedIn](https://www.linkedin.com/in/mamadou-sory-maiga-0612112ab/) | 📷 [YouTube](https://www.youtube.com/@msmhightech) | 🧠 [TikTok](https://www.tiktok.com/@msmtech8)
   
